@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on some cool real world projects in data science
 - 📫 How to reach me through email given on my profile
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: What's the point in making so much money if at the end your are going to die. So enjoy every single bit of it!
+- ⚡ Fun fact: You spend 1/3 of your life sleeping but I don't😈
 
 <!---
 umer-tariq77400/umer-tariq77400 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
